@@ -16,3 +16,6 @@ Eu pretendo me formar na faculdade de nutriçâõ e construir uma famiia futuram
 
 Entre em contato comigo pelo (maria.cesare@escola.pr.com.br)
 
+![](https://media.tenor.com/Cuu-B33YBJcAAAAM/tim%C3%A3o.gif)
+
+![](https://media.tenor.com/5ixVKgX7mcQAAAAM/spiderman.gif)
